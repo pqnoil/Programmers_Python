@@ -15,3 +15,4 @@
 ## [휘은이네 놀러가기](https://hini9.github.io)
 ## [영길이네 놀러가기](https://zel0rd.tistory.com)
 ## [동수네 놀러가기](https://ehdtnwWkdWkd.com)
+## [영근네 놀러가기](https://pqnoil.tistory.com/)
