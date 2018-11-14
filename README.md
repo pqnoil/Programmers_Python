@@ -12,6 +12,6 @@
 
 ### K-Shield Jr. HiNi9, zel0rd, rhdqndyd project
 
-## [휘은이네 놀러가기](https://HiNi9/github.io)
+## [휘은이네 놀러가기](https://hini9.github.io)
 ## [영길이네 놀러가기](https://zel0rd.tistory.com)
 ## [동수네 놀러가기](https://ehdtnwWkdWkd.com)
